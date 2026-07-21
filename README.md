@@ -56,6 +56,10 @@ SUBVERSE | EPISODE TWO | S01E02
 <br>
 https://www.youtube.com/watch?v=BX9qt_Pz0Kw
 
+SUBVERSE | EPISODE THREE | S01E03
+<br>
+https://www.youtube.com/watch?v=FUbnK1u2us4
+
 The Songbird's Silence, an original children's story | FT
 <br>
 https://www.youtube.com/watch?v=q4cK_89wxyA
